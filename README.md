@@ -1,4 +1,4 @@
-ima just leave this here , I'll probably actually fix this up eventually 
+ima just leave this here , I'll probably work on this page eventually 
 ![Gd27aMGbIAADO1n](https://github.com/user-attachments/assets/95fe2359-87e8-4c4f-8bd2-0a5a7a34f26c)
 
 
