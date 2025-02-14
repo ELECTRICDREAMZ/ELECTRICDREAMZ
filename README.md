@@ -1,6 +1,6 @@
+![music_note_art_](https://github.com/user-attachments/assets/47728d01-3e7c-48b2-949d-260a5ba66044)
+
 ![springtime_github](https://github.com/user-attachments/assets/87981f75-0e75-41bc-8be2-328bebbfee93)
-
-
 
 (art by me :3)
 ima just leave this here , I'll probably work on this page eventually 
