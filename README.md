@@ -1,5 +1,7 @@
 ![music_note_art_](https://github.com/user-attachments/assets/47728d01-3e7c-48b2-949d-260a5ba66044)
 
+![Honeybee_tfem_doodle](https://github.com/user-attachments/assets/8cf531cf-047e-4e9e-8624-806a0034fb33) 
+
 ![springtime_github](https://github.com/user-attachments/assets/87981f75-0e75-41bc-8be2-328bebbfee93)
 
 (art by me :3)
