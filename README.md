@@ -10,6 +10,8 @@ ima just leave this here , I'll probably work on this page eventually
 and this :3
 ![GdMMOlgXEAETTgI](https://github.com/user-attachments/assets/6ed31ddc-5cf4-4441-b4dd-6cfd00e54389)
 
+![1000004622](https://github.com/user-attachments/assets/6b194388-3734-40d1-8fb5-b7031c2ef462)
+
 
 <!---
 ELECTRICDREAMZ/ELECTRICDREAMZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
